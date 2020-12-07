@@ -8,7 +8,7 @@ Potential Candidate For Business Program Management Apprenticeship Program with 
 
 ## Education  
   
-**Self-taught project/program management**  
+**Self-Taught Project/Program Management**  
 -Udemy, PMI-CAPM Exam Prep Coursework, Completed October 2020  
 -LinkedIn Learning Coursework  
 
