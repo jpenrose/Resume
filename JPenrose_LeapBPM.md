@@ -8,7 +8,7 @@ Professional graphic designer who has found that my real passion is working with
 
 Excellent communication skills and high emotional intelligence help me to collaborate well with others. I believe strongly in personal integrity and personal accountability for my words and actions. I respect and value differences in all people. I am adaptable to change and a creative problem solver. I find satisfaction in empowering and facilitating others in their ability to meet project goals.
 
-I would be thrilled to bring my passion and skill set to learn at the Business Program Management Apprenticeship Program with Microsoft Leap.
+I would be thrilled to bring my passion and skill set to learn successfully at the Business Program Management Apprenticeship Program with Microsoft Leap.
 
 ## Education  
   
