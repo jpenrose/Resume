@@ -4,7 +4,7 @@ jen.penrose@gmail.com
 Sammamish, WA  
 [linkedin.com/jenpenrose](linkedin.com/jenpenrose)  
 
-Professional graphic designer who has found that my real passion is working with stakeholders to manage projects. I love to learn and, after a 12 year career break, I have been diligently studying project/program management skills. I am very excited for the opportunity to be considered for this apprenticeship where I can learn how to become a successful Microsoft Business Program Manager.
+Professional graphic designer who has found my real passion is working with stakeholders to manage projects. I love to learn and, after a 12 year career break, I have been diligently studying project/program management skills. I am very excited for the opportunity to be considered for this apprenticeship where I can learn how to become a successful Microsoft Business Program Manager.
 
 Excellent communication skills and high emotional intelligence help me to collaborate well with others. I believe strongly in personal integrity and personal accountability for my words and actions. I respect and value differences in all people. I am adaptable to change and a creative problem solver. I find satisfaction in empowering and facilitating others in their ability to meet project goals.
 
@@ -14,7 +14,7 @@ I would be thrilled to bring my passion and skill set to learn successfully at t
   
 **Self-Taught Project/Program Management**  
 -Udemy, PMI-CAPM Exam Prep Coursework, Completed October 2020  
--LinkedIn Learning Coursework  
+-LinkedIn Learning Coursework in Agile Methodologies 
 
 **Brigham Young University**  
   Bachelor's of Arts Degree in Design  
